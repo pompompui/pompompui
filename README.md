@@ -1,4 +1,20 @@
 ## meow meow
+
+<table>
+  </tr>
+    <th>
+      $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
+      <br>
+      $\color{#921616}{\textsf{✡ 𝙽𝚊𝚍𝚒 ✡}}$ <br>
+      $\color{#132676}{\textsf{𝚂𝙷𝙴/𝙷𝙴𝚁}}$ <br>
+      $\color{#921616}{\textsf{𝙽𝚘𝚕𝚒 𝚔𝚒𝚗}}$ <br>
+      $\color{#132676}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
+      <br>
+      $\color{#921616}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
+
+
+[**PRONOUNS.PAGEএ**](https://en.pronouns.page/@pomnipop) 
+
 $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       <br>
       $\color{#303030}{\textsf{PEOPLE WHO SHIPS}}$ <br>
