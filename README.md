@@ -1,16 +1,12 @@
-## Hi there 👋
+## meow meow
 
-<!--
-**pompompui/pompompui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝙩𝙬 :   𝙋𝙍𝙊𝘽𝙇𝙀𝙈𝘼𝙏𝙄𝘾             
+꒰ Names ꒱
+⌗　　Age !!　𓂃★
+⌗　  Pronouns !!　𓂃★
+⌗　　System !!　𓂃★
+⌗ 😆  ◟ ͜　   †⠀   Funny    )  ྀི     ︱𝙩𝙖𝙡𝙠𝙞𝙣𝙜 
+⌗ 🤡  ◟ ͜　   †⠀   Noob   )  ྀི   ︱reblogs 
+⌗ 🎪  ◟ ͜　   †⠀   𝐈t's  showtime !    )  ྀི  ︱coining 
+⌗ 🐹 ◟ ͜　   †⠀    Cute pom ! ! ! )  ྀི           ︱hoard 
+⌗ 🍓  ◟ ͜　   †⠀   Ships   )  ྀི   ︱asks 
