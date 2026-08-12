@@ -1,5 +1,8 @@
 ## meow meow
-
+<p align="center">
+    
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=921616&center=true&vCenter=true&width=1200&lines=Well...+It's+possible+!" />
+   </p>
    <img width="736" height="736" alt="Untitled76_20260812220413" src="https://github.com/user-attachments/assets/2e632409-a7eb-4aa7-acef-991cbf79bfd5" />
 
 <table>
