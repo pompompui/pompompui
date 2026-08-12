@@ -2,6 +2,7 @@
 <p align="center">
     
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=921616&center=true&vCenter=true&width=1200&lines=Well...+It's+possible+!" />
+  
    </p>
    <img width="736" height="736" alt="Untitled76_20260812220413" src="https://github.com/user-attachments/assets/2e632409-a7eb-4aa7-acef-991cbf79bfd5" />
 
@@ -35,4 +36,3 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       <img width="150" height="20" alt="Tumblr_l_656210062638804" src="https://github.com/user-attachments/assets/cf65acf9-7974-4284-aed0-aa8a66c0f428" />
       <img width="388" height="228" alt="Tumblr_l_656223052381958" src="https://github.com/user-attachments/assets/425f9280-dd12-4d37-b104-942bb31fd57e" />
       <img width="388" height="228" alt="Tumblr_l_656311393898887" src="https://github.com/user-attachments/assets/d21f2602-8535-457b-a9c4-c500db72050a" />
-
