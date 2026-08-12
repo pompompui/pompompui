@@ -1,5 +1,7 @@
 ## meow meow
 
+   <img width="736" height="736" alt="Untitled76_20260812220413" src="https://github.com/user-attachments/assets/2e632409-a7eb-4aa7-acef-991cbf79bfd5" />
+
 <table>
   </tr>
     <th>
@@ -24,14 +26,6 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#132676}{\textsf{SHIP/SYSTEM DISCOURSE.}}$ <br>
       $\color{#921616}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
       <br>
-      <br>
       $\color{#132676}{\textsf{FOR AN EXTENDED LIST AND}}$ <br>
       $\color{#921616}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$ <𝘣𝘳>
-      $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{ 😆  ◟ ͜　   †⠀   Funny    )  ྀི     ︱Talking jokes or something}}$ <𝘣𝘳>
-      $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{ 🤡  ◟ ͜　   †⠀   Noob   )  ྀི   ︱can make colours :P}}$ <𝘣𝘳>
-      $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{ 🎪  ◟ ͜　   †⠀   𝐈t's  showtime !    )  ྀི  ︱Ship?!}}$ <𝘣𝘳>
-      $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{🐹 ◟ ͜　   †⠀    Cute pom ! ! ! )  ྀི           ︱kin pomni}}$ <𝘣𝘳>
-      $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{}🍓  ◟ ͜　   †⠀   Ships   )  ྀི   ︱people who loves}$ <𝘣𝘳>
-      $\color{#921616}{\textsf{˚∘˙　Age !! 🍥}}$ <br>
-      $\color{#921616}{\textsf{!! 15 yo ˚˙∘🍓}}$ <br>
-      <br>
+      
