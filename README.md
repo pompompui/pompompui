@@ -30,5 +30,9 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#921616}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
       <br>
       $\color{#132676}{\textsf{FOR AN EXTENDED LIST AND}}$ <br>
-      $\color{#921616}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$ <𝘣𝘳>
-      
+      $\color{#921616}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$
+      <br>
+      <img width="150" height="20" alt="Tumblr_l_656210062638804" src="https://github.com/user-attachments/assets/cf65acf9-7974-4284-aed0-aa8a66c0f428" />
+      <img width="388" height="228" alt="Tumblr_l_656223052381958" src="https://github.com/user-attachments/assets/425f9280-dd12-4d37-b104-942bb31fd57e" />
+      <img width="388" height="228" alt="Tumblr_l_656311393898887" src="https://github.com/user-attachments/assets/d21f2602-8535-457b-a9c4-c500db72050a" />
+
