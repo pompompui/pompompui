@@ -35,3 +35,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       <img width="150" height="20" alt="Tumblr_l_656210062638804" src="https://github.com/user-attachments/assets/cf65acf9-7974-4284-aed0-aa8a66c0f428" />
       <img width="388" height="228" alt="Tumblr_l_656223052381958" src="https://github.com/user-attachments/assets/425f9280-dd12-4d37-b104-942bb31fd57e" />
       <img width="388" height="228" alt="Tumblr_l_656311393898887" src="https://github.com/user-attachments/assets/d21f2602-8535-457b-a9c4-c500db72050a" />
+      
+- - - 
+
+<img width="480" height="371" alt="Untitled71_20260812231116" src="https://github.com/user-attachments/assets/eec7d287-f22a-4e03-9462-b8215ed29537" />
