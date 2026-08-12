@@ -24,6 +24,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#132676}{\textsf{SHIP/SYSTEM DISCOURSE.}}$ <br>
       $\color{#921616}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
       <br>
+      <br>
       $\color{#132676}{\textsf{FOR AN EXTENDED LIST AND}}$ <br>
       $\color{#921616}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$ <𝘣𝘳>
       $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{ 😆  ◟ ͜　   †⠀   Funny    )  ྀི     ︱Talking jokes or something}}$ <𝘣𝘳>
@@ -33,3 +34,4 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\𝘤𝘰𝘭𝘰𝘳{#921616}{\𝘵𝘦𝘹𝘵𝘴𝘧{}🍓  ◟ ͜　   †⠀   Ships   )  ྀི   ︱people who loves}$ <𝘣𝘳>
       $\color{#921616}{\textsf{˚∘˙　Age !! 🍥}}$ <br>
       $\color{#921616}{\textsf{!! 15 yo ˚˙∘🍓}}$ <br>
+      <br>
