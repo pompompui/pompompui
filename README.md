@@ -1,4 +1,4 @@
-## meow meow
+## Pomni pop! 
 <p align="center">
     
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=921616&center=true&vCenter=true&width=1200&lines=Well...+It's+possible+!" />
@@ -49,3 +49,6 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
 - - - 
 
 <img width="480" height="371" alt="Untitled71_20260812231116" src="https://github.com/user-attachments/assets/eec7d287-f22a-4e03-9462-b8215ed29537" />
+<p align="center">
+    
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=132676&center=true&vCenter=true&width=1200&lines=Jax.+stay+with+me.." />
