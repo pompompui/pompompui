@@ -35,6 +35,15 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       <img width="150" height="20" alt="Tumblr_l_656210062638804" src="https://github.com/user-attachments/assets/cf65acf9-7974-4284-aed0-aa8a66c0f428" />
       <img width="388" height="228" alt="Tumblr_l_656223052381958" src="https://github.com/user-attachments/assets/425f9280-dd12-4d37-b104-942bb31fd57e" />
       <img width="388" height="228" alt="Tumblr_l_656311393898887" src="https://github.com/user-attachments/assets/d21f2602-8535-457b-a9c4-c500db72050a" />
+       <img width="360" height="202" alt="Tumblr_l_698388587077164" src="https://github.com/user-attachments/assets/d79cb7f7-d405-4dce-8b1d-d5288a08bd39" />
+       $\color{#921616}{\textsf{Cuddle+hug freely}}$ <br>
+       <img width="540" height="432" alt="Tumblr_l_698213409484538" src="https://github.com/user-attachments/assets/d2cb4e2a-276f-4b5e-ae53-06f01dddc62e" />
+       $\color{#132676}{\textsf{Dn copy/cover, I dare u! }}$ <br>
+
+
+
+
+
       
 - - - 
 
